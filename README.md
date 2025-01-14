@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning in RobotFramework and sharing a basic knowledge for everyone who are on beginning stage
 - 💞️ I’m looking to collaborate on 'nothing'
 - 📫 How to reach me, you can send message to me
-- 😄 Pronouns: Aurora
+- 😄 Pronouns: Enanya
 - ⚡ Fun fact: Lazy but have to
 
 <!---
